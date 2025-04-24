@@ -1,1 +1,1 @@
-Game by André and lucas
+Game by André and Lucas
